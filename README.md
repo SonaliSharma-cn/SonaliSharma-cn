@@ -3,4 +3,4 @@
 - 👯 I HAVE JUST STARTED THIS.
 
 https://x.com/SonaliSharma_cn
-www.linkedin.com/in/sonali-sharma-5462b6348
+www.linkedin.com/in/sonali-s-aab901228
